@@ -9,4 +9,3 @@
 - 📫 How to reach me: You can access my Discord server through my YouTube channel.
 - 😄 Pronouns: He/Him or purple/box
 - ⚡ Fun fact: I've been waiting for Hytale for 2326 days as of 27/4/2025!
--->
